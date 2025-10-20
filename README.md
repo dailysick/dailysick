@@ -1,16 +1,25 @@
-## Hi there 👋
+<img width="1064" height="353" alt="image" src="https://github.com/user-attachments/assets/1234a0f6-f018-42bc-95e0-2b6086687cd1" />
 
-<!--
-**dailysick/dailysick** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+( ´ཀ` )
+Sexy vampire I'm falling in love
 
-Here are some ideas to get you started:
+So just bite me, baby, and drink all my blood
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+Oh yeah
+
+Sexy vampire I'm falling in love with you
+
+So do what you want to do
+
+Sexy vampire I'm falling in love
+
+<img width="734" height="244" alt="image" src="https://github.com/user-attachments/assets/43e37820-4bbb-40c0-9501-6e3cee1d9f5f" />
+
+
+DNI: idk honetsly just dont be too weird ┐(´ー｀)┌
+
+MAIN FANDOMS: Forsaken, Jim's computer, Die Of Death, Undertale, Deltarune,
+Needy Streamer Overload, Alien Stage. 
+
+<img width="722" height="352" alt="image" src="https://github.com/user-attachments/assets/e4146ce1-3edc-4cc0-b303-313f30aff118" />
+
