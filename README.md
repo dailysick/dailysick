@@ -13,7 +13,7 @@ So do what you want to do
 
 Sexy vampire I'm falling in love
 
-<img width="734" height="244" alt="image" src="https://github.com/user-attachments/assets/43e37820-4bbb-40c0-9501-6e3cee1d9f5f" />
+<img width="1064" height="244" alt="image" src="https://github.com/user-attachments/assets/43e37820-4bbb-40c0-9501-6e3cee1d9f5f" />
 
 
 DNI: idk honetsly just dont be too weird ┐(´ー｀)┌
@@ -21,5 +21,5 @@ DNI: idk honetsly just dont be too weird ┐(´ー｀)┌
 MAIN FANDOMS: Forsaken, Jim's computer, Die Of Death, Undertale, Deltarune,
 Needy Streamer Overload, Alien Stage. 
 
-<img width="722" height="352" alt="image" src="https://github.com/user-attachments/assets/e4146ce1-3edc-4cc0-b303-313f30aff118" />
+<img width="1064" height="352" alt="image" src="https://github.com/user-attachments/assets/e4146ce1-3edc-4cc0-b303-313f30aff118" />
 
