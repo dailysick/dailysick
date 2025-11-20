@@ -1,4 +1,5 @@
-<img width="1064" height="353" alt="image" src="https://github.com/user-attachments/assets/1234a0f6-f018-42bc-95e0-2b6086687cd1" />
+<img width="850" height="315" alt="image" src="https://github.com/user-attachments/assets/c0e31932-a451-4e26-a457-67db03184577" />
+
 
 ( ´ཀ` )
 Sexy vampire I'm falling in love
@@ -13,13 +14,16 @@ So do what you want to do
 
 Sexy vampire I'm falling in love
 
-<img width="1064" height="244" alt="image" src="https://github.com/user-attachments/assets/43e37820-4bbb-40c0-9501-6e3cee1d9f5f" />
+
+<img width="850" height="315" alt="image" src="https://github.com/user-attachments/assets/883a6f02-2f96-4deb-a244-920eff5b52e4" />
 
 
 DNI: idk honetsly just dont be too weird ┐(´ー｀)┌
 
-MAIN FANDOMS: Forsaken, Jim's computer, Die Of Death, Undertale, Deltarune,
+MAIN FANDOMS: OFF, Roblox/Minecraft ARGs, Forsaken, Jim's computer, Die Of Death, Undertale, Deltarune,
 Needy Streamer Overload, Alien Stage. 
 
-<img width="1064" height="352" alt="image" src="https://github.com/user-attachments/assets/e4146ce1-3edc-4cc0-b303-313f30aff118" />
+
+<img width="850" height="315" alt="image" src="https://github.com/user-attachments/assets/4938e1db-0667-4c61-9f38-6d425d4752ec" />
+
 
